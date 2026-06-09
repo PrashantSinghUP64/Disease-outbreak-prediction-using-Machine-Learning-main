@@ -1,4 +1,4 @@
-HOME PAGE
+
 
 ![Screenshot 2025-01-13 140434](https://github.com/user-attachments/assets/e970d090-4f58-42a1-959b-8aaae5aca245)
 
